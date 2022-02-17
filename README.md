@@ -8,10 +8,10 @@ Sponsored by Bradesco national financial bank and major financial market investo
 Update:
 
 
-More +51k Thousand views 
+More +51.080 Thousand views 
 
 
-And 4 Million Subscribers on Bradesco Youtube Channel 
+And 4.19 Million Subscribers on Bradesco Youtube Channel 
 
 
 
